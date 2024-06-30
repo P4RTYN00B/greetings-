@@ -1,11 +1,12 @@
-  Hey! My name is Finn / Vincent! I also go by Vanny and sometimes Vinny. 
-  I am nd and sometimes agere.
-  You're probably from Ponytown- lol, so here are some cool fandoms I'm in! 
-  Object Shows, Phighting!, Regretevator, Pokemon, and very possibly more to come.
-  My biggest hyperfixation out of these is Phighting!
-  I mostly hang out around spawn and the Phighting!/Roblox area.
-  My roblox user is Mizookee if ya wanna friend me :]
-  I have trouble communicating with people, so sorry if I ignore you or don't talk much! ^_^"
-  DNC any of my skins pls! Also, please refrain from heavy isnpiration. I feel like I don't need to say this, but some people out there need to hear this...
-  DNI if: basic DNI criteria, ex. rascism, homophobia, transphobia, ect. If I'm in a certain persona / character and you are cosplaying that same character (it can be hard for me to deal with that), you make jokes about animal abuse
-  That's it for now! any1 can INT if they don't qualify for the DNI criteria! Have a great day, reader. :) 
+Hey! My name is Finn, but I also go as Broker or sometimes Vincent/Vinny! 
+I use They/He pronouns :)
+I'm a Subspace/Broker kinnie (I know I am not these characters, but I sometimes have episodes where I truly believe I am them).
+I am ND and sometimes agere. 
+My current Hyperfixations are as follows: Regretevator, Phighting!, and Object Shows.
+My main interest is Phighting, and I can be seen at spawn or the phighting/roblox area. 
+I don't mind if you come say hello! In fact, I would appriciate it very much.
+I'm okay with booping/kissing/cuddling as long as it is not in a parasocial way! 
+The only lable I use is Non-Binary. Otherwise, my sexuality and other orrientations are unlabled.
+I do not befriend people I just met, mostly due to social anxiety. However, I am okay with getting to know you!!
+Since I struggle with interacting with people, I may accidentally-- or purposely-- ignore you. It is never personal! I may just need a moment to calm down and/or recharge.
+If you want to learn more about me and see my DNI/BYI, you should check out my Rentry! Thx for reading. <3
